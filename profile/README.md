@@ -6,6 +6,8 @@ Top 3 Quạt Mini Cầm Tay Được Yêu Thích Nhất Hiện Nay
 
 1. Quạt Turbo Tặng Ốp Lưng – Giá: 349.000 đ
 
+# Mua Tai : https://s.shopee.vn/3Au85XLZqS
+
 Ưu điểm nổi bật:
 
 Tốc độ xoay cực đại: 10.000 vòng/phút
@@ -20,6 +22,8 @@ Tặng kèm ốp lưng bảo vệ tiện lợi khi mang theo
 
 2. Quạt Mini GOOJODOQ – Giá: 249.000 đ
 
+# Mua Tai : https://s.shopee.vn/4q2M4cjLqS
+
 Ưu điểm:
 
 Gọn nhẹ, dễ cầm tay
@@ -33,6 +37,8 @@ Pin dung lượng khá, gió mát ổn định
 Điểm cộng: Giá hợp lý, dễ tiếp cận người dùng phổ thông.
 
 3. Quạt Mini GOOJODOQ Có Màn Hình Kỹ Thuật Số LED – Giá: 199.000 đ
+
+# Mua Tai : https://s.shopee.vn/4q2M4dS2IC
 
 Ưu điểm:
 
